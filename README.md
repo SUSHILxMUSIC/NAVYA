@@ -23,7 +23,7 @@
 
 
 
-#### Copy Pasters You Can Copy This But Must Give Credits ...
+#### Copy Pasters You Can Copy This But Must Give Credits ..
 
 ### Owner Of This Repository
 [![Shubhi Halder](https://te.legra.ph/file/8f7fed47f705c80e738f7.jpg)](https://t.me/Shubhi8x) 
